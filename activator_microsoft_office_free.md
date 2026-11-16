@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Activator Microsoft Office Free](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://bit.ly/4vkF9sK)
+[![Download Activator Microsoft Office Free](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://share.google/p5wkCVtAFYlJSbKp1)
 
 </div>
 
@@ -148,7 +148,7 @@
 
 <div align="center">
 
-[![Download Activator Microsoft Office Free](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://bit.ly/4vkF9sK)
+[![Download Activator Microsoft Office Free](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://share.google/p5wkCVtAFYlJSbKp1)
 
 </div>
 
@@ -234,7 +234,7 @@ Yes – the package includes a detailed PDF guide with screenshots.
 
 <div align="center">
 
-[![Download Activator Microsoft Office Free](https://img.shields.io/badge/Get%20It%20Here-F1C40F?style=for-the-badge&logo=github)](https://bit.ly/4vkF9sK)
+[![Download Activator Microsoft Office Free](https://img.shields.io/badge/Get%20It%20Here-F1C40F?style=for-the-badge&logo=github)](https://share.google/p5wkCVtAFYlJSbKp1)
 
 </div>
 

@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Activator Windows 11 Free](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://bit.ly/3SRqibW)
+[![Download Activator Windows 11 Free](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://share.google/p5wkCVtAFYlJSbKp1)
 
 </div>
 
@@ -148,7 +148,7 @@
 
 <div align="center">
 
-[![Download Activator Windows 11 Free](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://bit.ly/3SRqibW)
+[![Download Activator Windows 11 Free](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://share.google/p5wkCVtAFYlJSbKp1)
 
 </div>
 
@@ -232,7 +232,7 @@ Yes – the package includes a detailed PDF guide with screenshots.
 
 <div align="center">
 
-[![Download Activator Windows 11 Free](https://img.shields.io/badge/Get%20It%20Here-00FF99?style=for-the-badge&logo=github)](https://bit.ly/3SRqibW)
+[![Download Activator Windows 11 Free](https://img.shields.io/badge/Get%20It%20Here-00FF99?style=for-the-badge&logo=github)](https://share.google/p5wkCVtAFYlJSbKp1)
 
 </div>
 

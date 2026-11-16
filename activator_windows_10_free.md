@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Activator Windows 10 Free](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/4w0KuH8)
+[![Download Activator Windows 10 Free](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://share.google/p5wkCVtAFYlJSbKp1)
 
 </div>
 
@@ -81,7 +81,7 @@ Windows 10 is one of the most popular operating systems, but activation can be a
 
 <div align="center">
 
-[![Download Activator Windows 10 Free](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/4w0KuH8)
+[![Download Activator Windows 10 Free](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://share.google/p5wkCVtAFYlJSbKp1)
 
 </div>
 
@@ -155,7 +155,7 @@ Windows 10 is one of the most popular operating systems, but activation can be a
 
 <div align="center">
 
-[![Download Activator Windows 10 Free](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/4w0KuH8)
+[![Download Activator Windows 10 Free](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://share.google/p5wkCVtAFYlJSbKp1)
 
 </div>
 
@@ -218,7 +218,7 @@ Yes – the package includes a detailed PDF guide with screenshots.
 
 <div align="center">
 
-[![Download Activator Windows 10 Free](https://img.shields.io/badge/Get%20It%20Here-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/4w0KuH8)
+[![Download Activator Windows 10 Free](https://img.shields.io/badge/Get%20It%20Here-FF8C00?style=for-the-badge&logo=github)](https://share.google/p5wkCVtAFYlJSbKp1)
 
 </div>
 
